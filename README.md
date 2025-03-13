@@ -12,5 +12,5 @@ I am an undergraduate student in Istanbul University in Faculty of science, Mole
 - 💬 Ask me about anything, guarantee for nothing though
 - 📫 How to reach me: mahinur@uygur.com
 - 😄 Pronouns: you choose
-- 🔮 Fun fact: Even if the time machines exists, we would never be able to meet our future self. Meaning we only exist in now and the past? Or, do we really create our destiny? Weird, weird!
+- 🔮 Fun fact: Even if the time machines exists, we would never be able to meet our future self. Meaning we only exist in now and the past? Or, do we really create our what we're gonna be? Exhausting this living thing is!
 
